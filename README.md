@@ -18,4 +18,4 @@
 
 ## 联系
 
-- 邮箱：2994663650@qq.com
+- 邮箱：im.yuan.bai.work@gmail.com
